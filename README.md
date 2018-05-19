@@ -3,7 +3,7 @@
 
 [Dhirgho Shash](https://kumar-bishwajit.github.io/dhirgho%20shash/index.html)
 
-[Dhirgho Shash](https://kumar-bishwajit.github.io/dhirgho%20shash/index.html)
+[Drishti-bhora-brishti](https://kumar-bishwajit.github.io/Drishti-bhora-brishti/index.html)
 [Dhirgho Shash](https://kumar-bishwajit.github.io/dhirgho%20shash/index.html)
 [Dhirgho Shash](https://kumar-bishwajit.github.io/dhirgho%20shash/index.html)
 [Dhirgho Shash](https://kumar-bishwajit.github.io/dhirgho%20shash/index.html)
